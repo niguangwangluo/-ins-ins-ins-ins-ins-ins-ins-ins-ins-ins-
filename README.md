@@ -10,15 +10,12 @@ ins怎么保存图片和视频
 ins照片在线下载
 
 
-
-
-
 [可以下载Instagram视频的软件我找到啦，苹果安卓都能下！](http://xhslink.com/B/qNjweV)<br>
-[梨花香哪有轻松保存Ins照片香！史上超简单的保存Ins照片的教程来啦！](https://v.douyin.com/iYgLSvbK/ )<br>
-[看了就会！保存Ins视频超清晰教程就在你面前！快来学！](https://v.douyin.com/i2yhsqo7/ ndn:/ a@n.qR 06/12 )<br>
-[只要给我一分钟教你轻松保存Instagram图片](https://v.douyin.com/ijbqN5u7/ 11/17 R@k.ca JVy:/ )<br>
-[能轻松保存Ins视频和图片的秘诀想不想知道？速进！](https://v.douyin.com/i61mUhXV/ B@g.OK Yzt:/ 04/07 )<br>
-[这个保存Instagram视频的方法不看就亏大了，真的超级简单！](https://v.douyin.com/ihBdQwnV/ 03/09 BgB:/ k@p.Dh)<br>
+[梨花香哪有轻松保存Ins照片香！史上超简单的保存Ins照片的教程来啦！](https://www.douyin.com/video/7359503380349324553)<br>
+[看了就会！保存Ins视频超清晰教程就在你面前！快来学！](https://www.douyin.com/video/7366556645045832998)<br>
+[只要给我一分钟教你轻松保存Instagram图片](https://www.douyin.com/video/7379531361213844746)<br>
+[能轻松保存Ins视频和图片的秘诀想不想知道？速进！](https://www.douyin.com/video/7382498971861683482)<br>
+[这个保存Instagram视频的方法不看就亏大了，真的超级简单！](https://www.douyin.com/video/7408852841604893967)<br>
 [梨花香哪有轻松保存Ins照片香！史上超简单的保存Ins照片的教程来啦！](https://vt.tiktok.com/ZSFnTJKC5/)<br>
 [看了就会！保存Ins视频超清晰教程就在你面前！快来学！](https://vt.tiktok.com/ZSY1UpfYm/)<br>
 [你还不知道？现在保存Ins图片的方法只需要这么简单几步了](https://vt.tiktok.com/ZSYA4EEfq/)<br>
